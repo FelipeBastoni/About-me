@@ -10,5 +10,4 @@ So the only thing left for us is trying to learn and do   something that maybe s
 "By the sweat of your face you shall eat bread,
 till you return to the ground, for out of it you were taken;
 for you are dust, and to dust you shall return.”
-
 Gênesis 3:19
